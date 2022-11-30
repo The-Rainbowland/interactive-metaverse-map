@@ -49,5 +49,5 @@ The Team at The Rainbowland Metaverse is passionate about looking after communit
 ## ⚜️ Social
 - [Youtube](https://www.youtube.com/@TheRainbowlandMetaverse/channels)
 - [Twitter](https://twitter.com/TheRainbowland)
-- [Facebook] hghghgh
+- [Facebook](https://www.facebook.com/TheRainboowlandMetaverse)
 
