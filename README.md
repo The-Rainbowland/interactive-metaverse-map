@@ -2,7 +2,7 @@
 
 Hi! I'm a beautiful archipelago of continents & islands in the endless Ocean of The Rainbowland Metaverse. Social gaming platform, comprises a map made of lands & homes. The Rainbowland is an blockchain-powered Virtual Universe with different Worlds: The City, Rainbowhill, Cartoonville, Desert, Gatsbyville, Frozenville, Desert, Medieval, Factory, Departures, Celebrity, Voxelville & Pixelville, Oceania, Seaside, Lakeside & Riverside.
 
-![The Rainbowland Metaverse](https://gateway.pinata.cloud/ipfs/QmRfbp2NDJseNZgpWpPbaUWcb4QVZeTNHVFvRjXrs8WiGb)
+![The Rainbowland Metaverse](https://gateway.pinata.cloud/ipfs/QmWE5X1R8ft2bXEmAR64aioiPW1pexs34AZQncpcFSmoED)
 
 Deep dive into the Metaverse Ecosystem of limitless possibilities & earn rewards such as Ecosystem NFTs & Coins, Merchandise & much more!
 
